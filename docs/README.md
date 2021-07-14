@@ -1,2 +1,0 @@
-# kod-po-praktika
-neprofesionalno
